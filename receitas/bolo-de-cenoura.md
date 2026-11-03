@@ -38,3 +38,6 @@ Preparando a cobertura:
 
 Dica para um bolo fofinho
 Não coloque cenoura em excesso e bata bem os ingredientes no liquidificador. Depois de adicionar a farinha e o fermento, misture delicadamente para ajudar o bolo a crescer e ficar macio.
+
+Opinião:
+-Esse bola de cenoura é muito gostoso!No feriado, eu estava com muito fome. Naquele momento, eu quero comer alguma coisa. Assim, eu fui fazendo o bolo de cenoura com base dessa receita. E ficou uma delícia. Eu recomendo muito fazer esse bolo para você ter um dia delicioso!
