@@ -38,6 +38,25 @@ Preparando a cobertura
 8\. Finalize a cobertura: desligue o fogo e misture o creme de leite, se desejar.
 9\. Cubra o bolo: espere o bolo esfriar um pouco e espalhe a cobertura por cima.
 10\. Sirva: corte em fatias e aproveite seu delicioso bolo de chocolate!
+Você pode acrescentar uma seção ao final da receita, explicando os possíveis riscos durante o preparo e como evitá-los.
+
+### 3\. Perigos que podem ocorrer na criação do bolo
+
+Durante o preparo do bolo, alguns acidentes podem acontecer. Por isso, é importante tomar certos cuidados para garantir a segurança.
+
+1\. Queimaduras: o forno, a forma e a panela da cobertura ficam muito quentes. Utilize luvas térmicas ou panos secos para manuseá-los.
+
+2\. Cortes: facas e outros utensílios pontiagudos podem causar acidentes. Utilize-os com cuidado e evite deixá-los espalhados pela bancada.
+
+3\. Choques elétricos: o uso de batedeiras e outros aparelhos elétricos perto da água pode provocar choques. Mantenha as mãos e os equipamentos secos.
+
+4\. Derramamentos e quedas: ingredientes líquidos ou óleo derramados no chão podem causar escorregões. Limpe imediatamente qualquer sujeira.
+
+5\. Queima da cobertura: se a cobertura ficar muito tempo no fogo ou não for mexida, poderá grudar e queimar. Mantenha o fogo baixo e mexa constantemente.
+
+6\. Contaminação dos alimentos: utilizar utensílios sujos ou não higienizar as mãos pode contaminar a receita. Lave bem as mãos e os utensílios antes de começar.
+
+Dica de segurança: mantenha a cozinha organizada, tenha cuidado ao manusear objetos quentes e, se necessário, peça ajuda a um adulto durante o uso do forno e do fogão.
 
 ## Dica especial
 
